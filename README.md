@@ -1,0 +1,1 @@
+# Ghost.OS-paid
